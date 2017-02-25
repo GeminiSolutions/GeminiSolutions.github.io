@@ -1,1 +1,1 @@
-# geminisols.github.io
+# Gemini Solutions
